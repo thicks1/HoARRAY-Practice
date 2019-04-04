@@ -1,1 +1,0 @@
-# HoARRAY-Practice
